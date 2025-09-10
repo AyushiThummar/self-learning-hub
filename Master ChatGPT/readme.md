@@ -8,3 +8,7 @@
 
 **Chapter 3 –  ChatGPT for Learning and Education**
 
+
+**Chapter 4 –  ChatGPT in Your Personal Life**
+
+
